@@ -1,0 +1,1 @@
+# majyo.github.io
